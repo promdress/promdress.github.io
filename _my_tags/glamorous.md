@@ -1,0 +1,4 @@
+---
+slug: glamorous
+name: glamorous
+---

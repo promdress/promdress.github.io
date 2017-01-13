@@ -1,0 +1,4 @@
+---
+slug: macduggal
+name: macduggal
+---

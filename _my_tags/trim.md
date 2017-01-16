@@ -1,0 +1,4 @@
+---
+slug: trim
+name: trim
+---

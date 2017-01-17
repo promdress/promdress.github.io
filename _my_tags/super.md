@@ -1,0 +1,4 @@
+---
+slug: super
+name: super
+---

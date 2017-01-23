@@ -1,0 +1,4 @@
+---
+slug: cute
+name: cute
+---

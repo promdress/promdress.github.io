@@ -1,0 +1,4 @@
+---
+slug: pant
+name: pant
+---

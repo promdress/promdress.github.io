@@ -1,0 +1,4 @@
+---
+slug: regal
+name: regal
+---

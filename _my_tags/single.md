@@ -1,0 +1,4 @@
+---
+slug: single
+name: single
+---

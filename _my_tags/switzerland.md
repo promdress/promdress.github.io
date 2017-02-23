@@ -1,0 +1,4 @@
+---
+slug: switzerland
+name: switzerland
+---

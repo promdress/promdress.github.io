@@ -1,0 +1,4 @@
+---
+slug: taupe
+name: taupe
+---

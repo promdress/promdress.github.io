@@ -1,0 +1,4 @@
+---
+slug: classy
+name: classy
+---

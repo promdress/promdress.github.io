@@ -3,7 +3,7 @@ layout: post
 date: '2017-03-01'
 title: "Daymor Couture 429 Embellished Shoulders Dress"
 category: Daymor Evenings
-tags: ["beaded","daymor","dress","evening","embellished"]
+tags: ["beaded","dresses","dress","party","daymor"]
 image: http://img.princessan.com/22442-thickbox_default/daymor-couture-429-embellished-shoulders-dress.jpg
 ---
 Daymor Couture 429 Embellished Shoulders Dress

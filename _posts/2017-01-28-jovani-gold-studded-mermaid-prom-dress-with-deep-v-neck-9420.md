@@ -3,7 +3,7 @@ layout: post
 date: '2017-01-28'
 title: "Jovani Gold Studded Mermaid Prom Dress with Deep V Neck 9420"
 category: Jovani Celebrities|Red Carpet
-tags: ["brand","dresses","mermaid","prom","with"]
+tags: ["gold","party","charming","jovani","evening"]
 image: http://img.princessan.com/39872-thickbox_default/jovani-gold-studded-mermaid-prom-dress-with-deep-v-neck-9420.jpg
 ---
 Jovani Gold Studded Mermaid Prom Dress with Deep V Neck 9420

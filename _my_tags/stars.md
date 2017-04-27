@@ -1,0 +1,4 @@
+---
+slug: stars
+name: stars
+---

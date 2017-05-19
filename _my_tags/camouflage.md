@@ -1,0 +1,4 @@
+---
+slug: camouflage
+name: camouflage
+---

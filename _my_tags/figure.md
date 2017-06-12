@@ -1,0 +1,4 @@
+---
+slug: figure
+name: figure
+---

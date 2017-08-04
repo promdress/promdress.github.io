@@ -1,0 +1,4 @@
+---
+slug: wide
+name: wide
+---

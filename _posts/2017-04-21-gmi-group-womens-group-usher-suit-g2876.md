@@ -3,7 +3,7 @@ layout: post
 date: '2017-04-21'
 title: "GMI-Group Womens Group Usher Suit G2876"
 category: GMI-Group Usher Suits
-tags: ["suit","charming","dresses","beaded","prom"]
+tags: ["prom","group","beaded","womens","party"]
 image: http://img.princessan.com/39512-thickbox_default/gmi-group-womens-group-usher-suit-g2876.jpg
 ---
 GMI-Group Womens Group Usher Suit G2876

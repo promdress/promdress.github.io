@@ -3,7 +3,7 @@ layout: post
 date: '2017-03-31'
 title: "Misty Lane 13540 by Ben Marc Fashion Forward Church Suit"
 category: Misty Lane Evening Wear
-tags: ["prom","marc","evening","brand","forward"]
+tags: ["forward","suit","party","beaded","brand"]
 image: http://img.princessan.com/39056-thickbox_default/misty-lane-13540-by-ben-marc-fashion-forward-church-suit.jpg
 ---
 Misty Lane 13540 by Ben Marc Fashion Forward Church Suit

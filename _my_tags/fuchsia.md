@@ -1,0 +1,4 @@
+---
+slug: fuchsia
+name: fuchsia
+---

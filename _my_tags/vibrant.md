@@ -1,0 +1,4 @@
+---
+slug: vibrant
+name: vibrant
+---

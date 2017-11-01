@@ -1,0 +1,4 @@
+---
+slug: mint
+name: mint
+---

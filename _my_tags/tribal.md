@@ -1,0 +1,4 @@
+---
+slug: tribal
+name: tribal
+---

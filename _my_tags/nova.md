@@ -1,0 +1,4 @@
+---
+slug: nova
+name: nova
+---

@@ -1,0 +1,4 @@
+---
+slug: bold
+name: bold
+---

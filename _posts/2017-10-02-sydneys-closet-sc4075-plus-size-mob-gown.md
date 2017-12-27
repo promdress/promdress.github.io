@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-02'
 title: "Sydneys Closet SC4075 Plus Size MOB Gown"
 category: Sydneys Closet
-tags: ["party","plus","evening","sydneys","closet"]
+tags: ["prom","closet","plus","dresses","size"]
 image: http://img.princessan.com/49060-thickbox_default/sydneys-closet-sc4075-plus-size-mob-gown.jpg
 ---
 Sydneys Closet SC4075 Plus Size MOB Gown

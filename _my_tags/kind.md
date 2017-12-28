@@ -1,0 +1,4 @@
+---
+slug: kind
+name: kind
+---

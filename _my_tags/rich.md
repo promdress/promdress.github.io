@@ -1,0 +1,4 @@
+---
+slug: rich
+name: rich
+---

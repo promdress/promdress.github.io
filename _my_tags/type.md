@@ -1,0 +1,4 @@
+---
+slug: type
+name: type
+---

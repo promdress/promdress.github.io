@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-07'
 title: "Studio 17 Glitter Tulle and Lame Ball Gown 12325"
 category: Studio 17
-tags: ["dresses","gown","ball","prom","glitter"]
+tags: ["gown","party","dresses","brand","tulle"]
 image: http://img.princessan.com/16308-thickbox_default/studio-17-glitter-tulle-and-lame-ball-gown-12325.jpg
 ---
 Studio 17 Glitter Tulle and Lame Ball Gown 12325

@@ -1,0 +1,4 @@
+---
+slug: pants
+name: pants
+---

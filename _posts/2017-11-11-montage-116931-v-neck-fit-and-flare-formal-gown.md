@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-11'
 title: "Montage 116931 V Neck Fit and Flare Formal Gown"
 category: Montage by Mon Cheri
-tags: ["charming","beaded","gown","flare","evening"]
+tags: ["party","beaded","evening","prom","formal"]
 image: http://img.princessan.com/46882-thickbox_default/montage-116931-v-neck-fit-and-flare-formal-gown.jpg
 ---
 Montage 116931 V Neck Fit and Flare Formal Gown

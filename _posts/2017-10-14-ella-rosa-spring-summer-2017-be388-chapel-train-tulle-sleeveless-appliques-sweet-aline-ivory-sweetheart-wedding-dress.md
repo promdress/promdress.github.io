@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-14'
 title: "Ella Rosa Spring/Summer 2017 BE388 Chapel Train Tulle Sleeveless Appliques Sweet Aline Ivory Sweetheart Wedding Dress"
 category: Ella Rosa
-tags: ["summer","party","ivory","appliques","sweetheart"]
+tags: ["rosa","spring","prom","train","dresses"]
 image: http://img.princessan.com/59230-thickbox_default/ella-rosa-spring-summer-2017-be388-chapel-train-tulle-sleeveless-appliques-sweet-aline-ivory-sweetheart-wedding-dress.jpg
 ---
 Ella Rosa Spring/Summer 2017 BE388 Chapel Train Tulle Sleeveless Appliques Sweet Aline Ivory Sweetheart Wedding Dress

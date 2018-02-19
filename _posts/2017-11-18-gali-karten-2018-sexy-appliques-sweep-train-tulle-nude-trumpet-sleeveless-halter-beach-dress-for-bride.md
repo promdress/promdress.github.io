@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-18'
 title: "Gali Karten 2018 Sexy Appliques Sweep Train Tulle Nude Trumpet Sleeveless Halter Beach Dress For Bride"
 category: Galia Lahav
-tags: ["party","sexy","trumpet","gali","tulle"]
+tags: ["appliques","trumpet","gali","train","karten"]
 image: http://img.princessan.com/64572-thickbox_default/gali-karten-2018-sexy-appliques-sweep-train-tulle-nude-trumpet-sleeveless-halter-beach-dress-for-bride.jpg
 ---
 Gali Karten 2018 Sexy Appliques Sweep Train Tulle Nude Trumpet Sleeveless Halter Beach Dress For Bride

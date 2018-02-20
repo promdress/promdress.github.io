@@ -1,0 +1,4 @@
+---
+slug: novelty
+name: novelty
+---

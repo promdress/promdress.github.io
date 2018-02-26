@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2018-02-09'
+title: "Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress"
+category: Ira Koval
+tags: ["evening","koval","wedding","beaded","chapel"]
+image: http://img.princessan.com/59585-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg
+---
+Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress
+
+On Sales: **$368.98**
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59585-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 0" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59591-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 1" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59590-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 2" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59589-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 3" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59588-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 4" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59587-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 5" /></a>
+<a href="https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59586-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 6" /></a>
+
+Buy it: [Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress](https://www.princessan.com/en/ira-koval/26342-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html "Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress")
+
+View more: [Ira Koval](https://www.princessan.com/en/245-ira-koval "Ira Koval")

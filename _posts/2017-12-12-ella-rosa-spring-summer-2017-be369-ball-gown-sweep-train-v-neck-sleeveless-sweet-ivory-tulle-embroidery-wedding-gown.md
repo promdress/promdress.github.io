@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-12'
+title: "Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown"
+category: Ella Rosa
+tags: ["brand","gown","evening","ivory","beaded"]
+image: http://img.princessan.com/59729-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg
+---
+Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown
+
+On Sales: **$399.98**
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59729-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 0" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59734-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 1" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59733-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 2" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59732-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 3" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59731-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 4" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59730-thickbox_default/ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown 5" /></a>
+
+Buy it: [Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown](https://www.princessan.com/en/ella-rosa/26374-ella-rosa-spring-summer-2017-be369-ball-gown-sweep-train-v-neck-sleeveless-sweet-ivory-tulle-embroidery-wedding-gown.html "Ella Rosa Spring/Summer 2017 BE369 Ball Gown Sweep Train V-Neck Sleeveless Sweet Ivory Tulle Embroidery Wedding Gown")
+
+View more: [Ella Rosa](https://www.princessan.com/en/244-ella-rosa "Ella Rosa")

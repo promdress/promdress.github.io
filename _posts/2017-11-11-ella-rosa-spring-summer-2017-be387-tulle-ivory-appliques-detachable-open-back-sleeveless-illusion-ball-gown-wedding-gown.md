@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-11'
+title: "Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown"
+category: Ella Rosa
+tags: ["party","rosa","appliques","ella","beaded"]
+image: http://img.princessan.com/59756-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg
+---
+Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown
+
+On Sales: **$358.98**
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59756-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 0" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59761-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 1" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59760-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 2" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59759-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 3" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59758-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 4" /></a>
+<a href="https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/59757-thickbox_default/ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.jpg" alt="Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown 5" /></a>
+
+Buy it: [Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown](https://www.princessan.com/en/ella-rosa/26381-ella-rosa-spring-summer-2017-be387-tulle-ivory-appliques-detachable-open-back-sleeveless-illusion-ball-gown-wedding-gown.html "Ella Rosa Spring/Summer 2017 BE387 Tulle Ivory Appliques Detachable Open Back Sleeveless Illusion Ball Gown Wedding Gown")
+
+View more: [Ella Rosa](https://www.princessan.com/en/244-ella-rosa "Ella Rosa")

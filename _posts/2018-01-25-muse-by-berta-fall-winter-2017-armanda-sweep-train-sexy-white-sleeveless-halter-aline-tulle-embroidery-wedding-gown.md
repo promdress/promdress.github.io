@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-01-25'
+title: "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown"
+category: Berta
+tags: ["fall","white","charming","evening","sleeveless"]
+image: http://img.princessan.com/62906-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg
+---
+Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown
+
+On Sales: **$378.98**
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62906-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 0" /></a>
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62911-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 1" /></a>
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62910-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 2" /></a>
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62909-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 3" /></a>
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62908-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 4" /></a>
+<a href="https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62907-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 5" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown](https://www.princessan.com/en/berta/28052-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown")
+
+View more: [Berta](https://www.princessan.com/en/252-berta "Berta")

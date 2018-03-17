@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-01-23'
+title: "Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown"
+category: Galia Lahav
+tags: ["chapel","party","butterfly","gown","lahav"]
+image: http://img.princessan.com/67170-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg
+---
+Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown
+
+On Sales: **$438.98**
+<a href="https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/67170-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg" alt="Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown 0" /></a>
+<a href="https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/67174-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg" alt="Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown 1" /></a>
+<a href="https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/67173-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg" alt="Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown 2" /></a>
+<a href="https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/67172-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg" alt="Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown 3" /></a>
+<a href="https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/67171-thickbox_default/galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.jpg" alt="Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown 4" /></a>
+
+Buy it: [Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown](https://www.princessan.com/en/galia-lahav/29337-galia-lahav-1003-chapel-train-deep-plunging-v-neck-butterfly-sleeves-aline-open-back-lace-appliques-beach-summer-wedding-gown.html "Galia Lahav 1003 Chapel Train Deep Plunging V-Neck Butterfly Sleeves Aline Open Back Lace Appliques Beach Summer Wedding Gown")
+
+View more: [Galia Lahav](https://www.princessan.com/en/261-galia-lahav "Galia Lahav")

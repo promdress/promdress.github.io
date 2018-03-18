@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-17'
 title: "Mac Duggal 82369H Graceful Ball Gown"
 category: Mac Duggal Ball Gowns
-tags: ["brand","gown","graceful","charming","evening"]
+tags: ["dresses","evening","graceful","duggal","party"]
 image: http://img.princessan.com/25896-thickbox_default/mac-duggal-82369h-graceful-ball-gown.jpg
 ---
 Mac Duggal 82369H Graceful Ball Gown

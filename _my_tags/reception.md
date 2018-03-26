@@ -1,0 +1,4 @@
+---
+slug: reception
+name: reception
+---

@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-03-15'
+title: "Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown"
+category: Berta
+tags: ["evening","berta","fall","train","party"]
+image: http://img.princessan.com/62795-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg
+---
+Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown
+
+On Sales: **$388.98**
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62795-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 0" /></a>
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62800-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 1" /></a>
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62799-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 2" /></a>
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62798-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 3" /></a>
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62797-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 4" /></a>
+<a href="https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/62796-thickbox_default/muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown 5" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown](https://www.princessan.com/en/berta/28021-muse-by-berta-fall-winter-2017-annabel-aline-sweep-train-sleeveless-sexy-illusion-blush-tulle-embroidery-bridal-gown.html "Muse by Berta Fall/Winter 2017 ANNABEL Aline Sweep Train Sleeveless Sexy Illusion Blush Tulle Embroidery Bridal Gown")
+
+View more: [Berta](https://www.princessan.com/en/252-berta "Berta")

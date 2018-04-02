@@ -3,7 +3,7 @@ layout: post
 date: '2018-01-16'
 title: "Landa Cocktail Sequin Tulle Short Party Dress ED326"
 category: Landa Cocktail
-tags: ["charming","evening","party","beaded","cocktail"]
+tags: ["short","evening","dresses","tulle","landa"]
 image: http://img.princessan.com/10366-thickbox_default/landa-cocktail-sequin-tulle-short-party-dress-ed326.jpg
 ---
 Landa Cocktail Sequin Tulle Short Party Dress ED326

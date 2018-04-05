@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-25'
 title: "Sticks and Stones by Morilee 33001 Two Pc Short Dress"
 category: Morilee Prom
-tags: ["dresses","dress","short","charming","stones"]
+tags: ["charming","morilee","prom","dress","brand"]
 image: http://img.princessan.com/56088-thickbox_default/sticks-and-stones-by-morilee-33001-two-pc-short-dress.jpg
 ---
 Sticks and Stones by Morilee 33001 Two Pc Short Dress

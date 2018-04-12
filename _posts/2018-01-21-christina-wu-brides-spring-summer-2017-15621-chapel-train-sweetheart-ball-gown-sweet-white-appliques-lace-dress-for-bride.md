@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-01-21'
+title: "Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride"
+category: Christina Wu
+tags: ["sweet","evening","brand","ball","bride"]
+image: http://img.princessan.com/69653-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg
+---
+Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride
+
+On Sales: **$338.98**
+<a href="https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/69653-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg" alt="Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride 0" /></a>
+<a href="https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/69657-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg" alt="Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride 1" /></a>
+<a href="https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/69656-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg" alt="Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride 2" /></a>
+<a href="https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/69655-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg" alt="Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride 3" /></a>
+<a href="https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/69654-thickbox_default/christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.jpg" alt="Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride 4" /></a>
+
+Buy it: [Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride](https://www.princessan.com/en/christina-wu/29829-christina-wu-brides-spring-summer-2017-15621-chapel-train-sweetheart-ball-gown-sweet-white-appliques-lace-dress-for-bride.html "Christina Wu Brides Spring/Summer 2017 15621 Chapel Train Sweetheart Ball Gown Sweet White Appliques Lace Dress For Bride")
+
+View more: [Christina Wu](https://www.princessan.com/en/298-christina-wu "Christina Wu")

@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-03-24'
+title: "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown"
+category: BHLDN
+tags: ["length","dresses","gown","spring","wedding"]
+image: http://img.princessan.com/63855-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg
+---
+BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown
+
+On Sales: **$238.98**
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63855-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 0" /></a>
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63860-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 1" /></a>
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63859-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 2" /></a>
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63858-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 3" /></a>
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63857-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 4" /></a>
+<a href="https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.princessan.com/63856-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown](https://www.princessan.com/en/bhldn/28354-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown")
+
+View more: [BHLDN](https://www.princessan.com/en/265-bhldn "BHLDN")
